@@ -1,0 +1,2 @@
+# 20180415_Kassenbon
+20180415_Kassenbon_Supermarkt_Freitagsrunde
